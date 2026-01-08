@@ -1,0 +1,1 @@
+Z-Transfer Setup Dosyası
